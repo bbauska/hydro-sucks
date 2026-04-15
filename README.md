@@ -1,4 +1,4 @@
-# Renewables are chaper than hydrocarbon fossile-fuels. Than, why not? Because Trump is a dick.
+# Renewables are cheaper than hydrocarbon fossile-fuels. Than, why not? Because Trump is a dick.
 
 # hydro-sucks
 Hydrocarbons suck shit under Trump especially. If he doesn't like you, he will fuck over everyone to get revenge.
