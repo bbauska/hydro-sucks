@@ -1,3 +1,7 @@
+# Trump is CRAZY!
+
+# Attacking the American-born Pope. Catholic church. Pope Leo XIV.
+
 # Drumpf is currently restricting permits for wind and solar-farms. Actively suppressing.
 
 # May Day Strike!!!
