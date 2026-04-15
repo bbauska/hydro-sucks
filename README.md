@@ -1,3 +1,5 @@
+# Drumpf is currently restricting permits for wind and solar-farms. Actively suppressing.
+
 # May Day Strike!!!
 
 # BYD - best electric cars in the World today.
